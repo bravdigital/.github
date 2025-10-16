@@ -31,7 +31,7 @@ To become a leading force in West African digital innovation — crafting soluti
 
 ### 🇰🇻 🇨🇻 Inovason Digital pa Kabu Verdi y pa Mundu
 
-BravDigital é un kumpanhia di teknologia kabuverdianu na fase inicial ki ta disenvlôv soluson digital pa apoya komunidades y negósius lokal.
+BravDigital é un kumpanhia di teknologia kabuverdianu na fase inicial ki ta disenvolve soluson digital pa apoya komunidades y negósius lokal.
 Nôs meta é uní kreatividá, inovason, y teknologia moderna pa kria mudansa real ku korason lokal y vizon global.
 
 ## 🎯 Nôs Misson
